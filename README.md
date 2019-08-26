@@ -1,0 +1,1 @@
+# luckCheck_aug26th
